@@ -11,7 +11,7 @@ In short, it has started rewiring Developers brain, Maybe yours is NExt!
 
 
 Why It Matter
-What to Focus on ... to avoid being caught unawares (skills; science based).
+What to Focus on (what developers now need to learn) ... to avoid being caught unawares (skills; science based).
 
 
 
